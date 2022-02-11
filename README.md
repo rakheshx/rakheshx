@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rakheshx
 - 😎 But I am really @rakheshster
-- 🤫 This is my alter ego for "work" related stuff
+- 🤫 This is my alter ego for work related stuff
 - 🦇 Bruce Wayne and Batman are both cool!
 
 <!---
